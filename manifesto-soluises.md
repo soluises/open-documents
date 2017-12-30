@@ -8,15 +8,15 @@ Inspirado no Movimento Artístico e Cultural do Solrealismo Maranhense, o SOLuí
 Quais são os nossos 4 valores(e suas interpretações)?
 -----------------------------------------------------
 
-*Olhar as pessoas* - interpretação: Empoderar o maranhense e comunidade em primeiro lugar.
+**Olhar as pessoas** - interpretação: Empoderar o maranhense e comunidade em primeiro lugar.
 
-*Compartilhar* - interpretação: Quem pedir ajuda, ajudar.
+**Compartilhar** - interpretação: Quem pedir ajuda, ajudar.
 
-*Diferença nos complementa*, todo mundo tem a possibilidade de contribuir e a gente tentar desenvolver a habilidade de saber ouvir.
+**Diferença nos complementa**, todo mundo tem a possibilidade de contribuir e a gente tentar desenvolver a habilidade de saber ouvir.
 
-*Tecnologia pra garantir acesso* - interpretação: a tecnologia como uma forma de possibilitar acesso.
+**Tecnologia pra garantir acesso** - interpretação: a tecnologia como uma forma de possibilitar acesso.
 
-*Errar é ok, sio* - interpretação: o erro é parte do processo.
+**Errar é ok, sio** - interpretação: o erro é parte do processo.
 
 `#GiveFirst`
 `#GiveBack`
